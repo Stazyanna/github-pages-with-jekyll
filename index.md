@@ -1,3 +1,3 @@
-# Welcome to my blog
+# Webmaps by Staz
 
-I'm glad you are here. I plan to talk about ...
+Heritage, Archaeology and Geopolitical Webmapping by Staz
